@@ -1,0 +1,1 @@
+e so pra informar uma cor de pele que deseja ou se indentifica.
